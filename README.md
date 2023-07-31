@@ -1,4 +1,4 @@
-HELLO ALL to all 
+HELLO ALL to all my friends
 Hello friends 
 abdc dbs cbd
 e2gdfeyfgdfvefvehjfvehfwehjfgyeg
